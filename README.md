@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @parbrandesten
 - 👀 I’m interested in trying to figure out the universe
 - 🌱 I’m currently learning java, integrations and other basic stuff
-- 💞️ I’m looking to collaborate on various projects
+- 💞️ I’m looking to collaborate with absolutley noone, just kidding, just reach-out
 - 📫 How to reach me +46 768 508 200, par.brandeste@worko.com
